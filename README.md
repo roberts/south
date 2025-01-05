@@ -2,6 +2,8 @@
 
 Tokenized Community for Southern Culture
 
+Need to expand..
+
 ## Details
 
 - Choose Rich Y'all
